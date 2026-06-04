@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Script best is the best break a brainrot egg Script, featuring silent aim and speed. Safe and powerful for all your needs.
 
 
 
